@@ -2,4 +2,4 @@
 
 Qué onda hermanos.
 
-¿Qué cuenta la raza?
+¿Qué cuenta la raza de la tierra?
